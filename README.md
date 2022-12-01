@@ -4,7 +4,9 @@ Me chamo  Camila Beatriz, tenho 16 anos.
 Atualmente  moro em Rondonópolis / Mt-BR
  
 🚀 Já palestrei em eventos como: 
-  - I Feira de Ciência de Mato Grosso;
+  -  I Feira de Ciência de Mato Grosso;
+
+<img align="right" alt="GIF" src="https://github.com/LannaGaby/LannaGaby/blob/main/octocat-1669917751382.png" width="400px"/>
 
 🌟 Meus  hobbies: 
   - Estudar astronomia ,  botânica,  história da arte; 
