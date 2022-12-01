@@ -1,16 +1,19 @@
 ### Hi there 👋
 
-<!--
-**Zambiazi/Zambiazi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chamo  Camila Beatriz, tenho 16 anos.
+Atualmente  moro em Rondonópolis / Mt-BR
+ 
+🚀 Já palestrei em eventos como: 
+  - I Feira de Ciência de Mato Grosso;
 
-Here are some ideas to get you started:
+🌟 Meus  hobbies: 
+  - Estudar astronomia ,  botânica,  história da arte; 
+  - Desenhar;  
+  - Ver as estrelas;
+  - Ouvir música e dançar;
+  - Ler livros; 
+  - Jogar minecraft;
+  
+- 🌱 I’m currently learning  principalmente sobre história da arte e da moda;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-->🌙  Aficionada em ciências humanas.
